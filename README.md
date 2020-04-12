@@ -24,3 +24,4 @@
 - 1 panetto di lievito di birra
 - 1 cucchiaio di olio
 - 3 min velocità spiga
+- 200 gradi per circa 30 minuti. Controllare accuratamente dopo 20 minuti
