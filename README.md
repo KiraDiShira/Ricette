@@ -33,3 +33,21 @@
 - 1 pizzisco di sale
 - 1 cucchiaino di formaggio
 - velocita 4 1 min
+
+# Peperoni ripieni
+
+- formaggio grattuggiato (velocità 10)
+- 1 o 2 aglio e prezzemolo tritati (4/5)
+- pan carre integrale (1 fetta a peperone tritato 4/5)
+- pangrattato
+
+Nella ciotola:
+
+- capperi e pomodori
+- olio
+- olio in peperoni
+
+180gradi, olio su peporoni, piu di 30minuti
+
+
+
