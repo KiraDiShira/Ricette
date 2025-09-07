@@ -68,4 +68,41 @@ Nella ciotola:
 180gradi, olio su peporoni, piu di 30minuti
 
 
+#Anellini 2
+
+- 2 melanzane
+sbucci
+divido a metà
+svuoto
+lasciando un dito
+e li metto in acqua
+la polpa a pezzettini
+con sale
+dentro scolapasta
+e sopra bottiglie che schiaccia
+45 minuti
+
+sugo con cipolla
+
+mozzarella
+
+prendo le 4 barchette e le asciugo e filo olio
+nel microonde o forno
+cartaforno
+180gradi per 12 minuti
+
+friggi: i pezzettini di melanzane sotto sale gli sciacquo e gli asciugo gli infarino e li friggo
+
+cucino gli anellini (30gr a barchetta quindi 120gr) 7 minuti
+li scolo 
+li aggiungo a melanzane, salsa e pecorino
+
+ogni barchetta: 1 salsa, impasto, mozzarella (100 gr/4 sgocciolata bene), prosciutto cotto (2 fette / 4), 1 salsa, impasto, 1 salsa, 1 pecorino
+
+forno, 180 gradi, 35 minuti
+
+
+Per salsa:
+soffriggere la cipolla, salsa, sale, basilico, 10 minuti
+
 
